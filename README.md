@@ -1,6 +1,6 @@
 ## Hi there!👋 I'm Eirini 😄
-You can finf me in:
--Linkedin: 
+You can find me in:
+----Linkedin: 
 
 <!--
 **Eirinintz/Eirinintz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
