@@ -1,6 +1,6 @@
 ## Hi there!👋 I'm Eirini 👀
 
-You can find me in:
+You can find me on:
 
 
 🎯Linkedin:   https://www.linkedin.com/in/eirini-ntzani-86bb71310/   
