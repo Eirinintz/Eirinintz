@@ -1,6 +1,6 @@
-## Hi there!👋 I'm Eirini 👀
+## Hi there!👋 Welcome to my profile!😊
 
-#### Welcome to my profile!😊
+###  I'm Eirini 👀 I study at the Department of Digital Systems in Sparta
 
 You can find me on:
 
