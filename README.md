@@ -1,6 +1,6 @@
 # Hi there!👋 Welcome to my profile!😊
 
-## I'm Eirini 👀 
+## I'm Eirini Ntzani 👀 
 
 ### I study at the Department of Digital Systems in Sparta!🎓
 
