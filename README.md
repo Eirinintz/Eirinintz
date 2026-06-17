@@ -2,7 +2,7 @@
 
 ## I'm Eirini Ntzani 👀 
 
-### Graduated with a Bachelor's degree in Digital Systems in Sparta!🎓
+### I am Graduated with a Bachelor's degree in Digital Systems in Sparta!🎓
 
 You can find me on:
 
